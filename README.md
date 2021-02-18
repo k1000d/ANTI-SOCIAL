@@ -1,7 +1,7 @@
 # on-sublime
 OPCIÓN A<br>
 
-Carrera de naves espaciales futurista creación de un videojuego de realidad virtual que acelera de velocidad según avanzas no hay carretera sólo neones en el espacio. MUSICA y VELOCIDAD
+Carrera de naves espaciales futurista creación de un videojuego de realidad virtual que acelera de velocidad según avanzas no hay carretera sólo neones en el espacio. MUSICA y VELOCIDAD, ¿SALTOS EN EL TIEMPO?
 <br>
 OPCIÓN B<br>
 
