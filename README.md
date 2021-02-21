@@ -10,8 +10,8 @@ La acción se desarrolla en un mundo donde las sociedades humanas se basan en el
 <br>
 
 
+<br> 
 
 
 
-
-
+3D, realidad virtual.
